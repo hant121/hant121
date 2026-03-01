@@ -1,3 +1,3 @@
-_**People can only truly understand things that they've actually experienced.**_
+_**Hundreds of gallons of blood from all the people I've killed in the past, have seeped into this body.**_
 
-Lichtendahl Tsery (Mobile Suit Gundam 00)
+Holland Novak (Eureka Seven)
