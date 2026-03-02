@@ -1,3 +1,3 @@
-_**Hundreds of gallons of blood from all the people I've killed in the past, have seeped into this body.**_
+_**It's difficult to like me when I'm being myself.**_
 
-Holland Novak (Eureka Seven)
+Ami Kawashima (Toradora!)
