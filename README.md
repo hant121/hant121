@@ -1,3 +1,3 @@
-_**Is there any purpose to wings that can't fly?**_
+_**Live by your own rules. And have reality accept your own rules. If you are able to do that, the future is all yours.**_
 
-Minagi Tohno (Air)
+Kagami Junichirou (Ultimate Otaku Teacher)
