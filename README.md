@@ -1,3 +1,3 @@
-_**If you cling to life, you live in fear of death. And that fear will cloud your judgment.**_
+_**Friends are connected by heart! You can't just rinse off something that's stained on your soul!**_
 
-Revy (Black Lagoon)
+Ling Yao (Fullmetal Alchemist: Brotherhood)
