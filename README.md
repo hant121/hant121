@@ -1,3 +1,3 @@
-_**Friends are connected by heart! You can't just rinse off something that's stained on your soul!**_
+_**If I can get the target to move as I want, I’ve succeeded as a Hunter.**_
 
-Ling Yao (Fullmetal Alchemist: Brotherhood)
+Ging Freecss (Hunter x Hunter)
