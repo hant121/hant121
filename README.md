@@ -1,3 +1,3 @@
-_**If I can get the target to move as I want, I’ve succeeded as a Hunter.**_
+_**It isn't even interesting fighting against someone who doesn't have their own goals.**_
 
-Ging Freecss (Hunter x Hunter)
+Zaraki Kenpachi (Bleach)
