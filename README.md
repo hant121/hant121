@@ -1,3 +1,3 @@
-_**It isn't even interesting fighting against someone who doesn't have their own goals.**_
+_**People become stronger because they have things they cannot forget. That's what you call growth.**_
 
-Zaraki Kenpachi (Bleach)
+Tsunade (Naruto)
