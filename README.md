@@ -1,3 +1,3 @@
-_**People become stronger because they have things they cannot forget. That's what you call growth.**_
+_**I'll give you some wise words, Shining Sleepless General. All heroes die of overwork.**_
 
-Tsunade (Naruto)
+Ikta Solork (Alderamin on the Sky)
