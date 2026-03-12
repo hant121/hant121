@@ -1,3 +1,3 @@
-_**I'll give you some wise words, Shining Sleepless General. All heroes die of overwork.**_
+_**People who sin say that they had to... had to survive. People who sin say that it's too late to stop now. The shadow called Sin dogs them steadily from behind, silently, without a word. Remorse and Agony are repeated, only to end up at Despair. But what sinners don't know, or what they have forgotten, is that there is a light, a light which keeps shining on them ever so warmly. A light that will never fade.**_
 
-Ikta Solork (Alderamin on the Sky)
+Vash the Stampede (Trigun)
