@@ -1,3 +1,3 @@
-_**The road of life is never without trials and tribulations.**_
+_**These days, I feel more comfortable in dark places.  I look at these shadows as a part of you.  They absorb all the light.  There's no one in the world who has this color but you.**_
 
-Castor (07-Ghost)
+Shinra Kishitani (Durarara!!)
