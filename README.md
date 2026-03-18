@@ -1,3 +1,3 @@
-_**Power comes in response to a need, not a desire. You have to create that need.**_
+_**Does math bring out your wrath?**_
 
-Son Goku (Dragon Ball)
+Shun Izuki (Kuroko's Basketball - duplicate)
