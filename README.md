@@ -1,3 +1,3 @@
-_**Does math bring out your wrath?**_
+_**No matter how deep the night, it always turns to day, eventually.**_
 
-Shun Izuki (Kuroko's Basketball - duplicate)
+Brook (One Piece)
