@@ -1,3 +1,3 @@
-_**I’ve been facing adversity from the day I was born! No matter how many of you there are, or what happens, I’ll overcome it all.**_
+_**I am calm. That's why I can fight you!**_
 
-Asta (Black Clover)
+Uryuu Ishida (Bleach)
