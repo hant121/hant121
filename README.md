@@ -1,3 +1,3 @@
-_**I am calm. That's why I can fight you!**_
+_**If you find a raw diamond, wanting it to become polished is natural right?**_
 
-Uryuu Ishida (Bleach)
+Kuu Hizuri (Skip Beat!)
