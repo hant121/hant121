@@ -1,3 +1,3 @@
-_**If you find a raw diamond, wanting it to become polished is natural right?**_
+_**Humans all behave the same way, like idiots. They all forget that someday, they're gonna die, so the moment they come face to face with death, they cling to life.**_
 
-Kuu Hizuri (Skip Beat!)
+Ginti (Death Parade)
