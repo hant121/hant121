@@ -1,3 +1,3 @@
-_**I see. I feel a strong pulse.**_
+_**If you feel the ends justify the means, how does that make you different from us demons, exactly?**_
 
-Rukia Kuchiki (Bleach)
+Maou Sadao (The Devil is a Part-Timer!)
