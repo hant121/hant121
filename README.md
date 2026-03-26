@@ -1,3 +1,3 @@
-_**If you feel the ends justify the means, how does that make you different from us demons, exactly?**_
+_**If you run into a wall and pretend it doesn't exist, you'll never make progress. The wall will never change, so you're the one who has to change.**_
 
-Maou Sadao (The Devil is a Part-Timer!)
+Hijikata Toushirou (Gintama)
