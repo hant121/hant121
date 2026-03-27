@@ -1,3 +1,3 @@
-_**If you run into a wall and pretend it doesn't exist, you'll never make progress. The wall will never change, so you're the one who has to change.**_
+_**Don't you think forcing people to help with something pointless is far more cruel?**_
 
-Hijikata Toushirou (Gintama)
+Fukase (Haven't You Heard? I'm Sakamoto)
