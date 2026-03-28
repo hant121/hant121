@@ -1,3 +1,3 @@
-_**Don't you think forcing people to help with something pointless is far more cruel?**_
+_**There was no reason for me to get attacked by you. And therefore, there was no reason to dodge.**_
 
-Fukase (Haven't You Heard? I'm Sakamoto)
+Medaka Kurokami (Medaka Box)
