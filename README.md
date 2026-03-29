@@ -1,3 +1,3 @@
-_**There was no reason for me to get attacked by you. And therefore, there was no reason to dodge.**_
+_**Hey mister, I am mad scientist. It's SO COOOOOL!!! Sonovabitch.**_
 
-Medaka Kurokami (Medaka Box)
+Okabe Rintarou (Steins;Gate)
