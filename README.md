@@ -1,3 +1,3 @@
-_**Hey mister, I am mad scientist. It's SO COOOOOL!!! Sonovabitch.**_
+_**Don't break anyone's heart, they only have one. Break their bones, they have 206.**_
 
-Okabe Rintarou (Steins;Gate)
+Kurosaki Ichigo (Bleach)
