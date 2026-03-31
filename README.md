@@ -1,3 +1,3 @@
-_**Don't break anyone's heart, they only have one. Break their bones, they have 206.**_
+_**Whenever I look at you, I'm reminded about everything I hate about myself. It hurts.**_
 
-Kurosaki Ichigo (Bleach)
+Nicholas D. Wolfwood (Trigun)
