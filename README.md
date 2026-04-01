@@ -1,3 +1,3 @@
-_**Whenever I look at you, I'm reminded about everything I hate about myself. It hurts.**_
+_**When you pick the only option you have to choose from, can you really call that your own decision?**_
 
-Nicholas D. Wolfwood (Trigun)
+Hayato Hayama (My Teen Romantic Comedy SNAFU)
