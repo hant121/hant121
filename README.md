@@ -1,3 +1,3 @@
-_**When you pick the only option you have to choose from, can you really call that your own decision?**_
+_**A drama has a progressive thought, an emotional climax and a resolution, but our lives aren't like that. All we get day after day, are a bunch of vague anxieties that are never really resolved.**_
 
-Hayato Hayama (My Teen Romantic Comedy SNAFU)
+Kaoru Yamazaki (Welcome to the N.H.K.)
