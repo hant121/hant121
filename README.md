@@ -1,3 +1,3 @@
-_**A drama has a progressive thought, an emotional climax and a resolution, but our lives aren't like that. All we get day after day, are a bunch of vague anxieties that are never really resolved.**_
+_**If you let yourself get depressed, you'd be making light of the people who trust and follow you.**_
 
-Kaoru Yamazaki (Welcome to the N.H.K.)
+Ogami Rei (Code:Breaker)
