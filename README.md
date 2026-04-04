@@ -1,3 +1,3 @@
-_**If you let yourself get depressed, you'd be making light of the people who trust and follow you.**_
+_**Do you know the truth of the battlefield? Kill a man normally, and it's considered a crime. But kill many on the battlefield and you become a hero!**_
 
-Ogami Rei (Code:Breaker)
+Luciano Bradley (Code Geass: Lelouch of the Rebellion)
