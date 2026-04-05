@@ -1,3 +1,3 @@
-_**Do you know the truth of the battlefield? Kill a man normally, and it's considered a crime. But kill many on the battlefield and you become a hero!**_
+_**People can't live without their memories. But hey can't live on their memories alone either. They have to wake up from their dreams. Those dreams will become sadness if they don't. Even if you wake up from your dream, your memories will still be there. So please smile. I want our memories to be happy to the very end. I wish everyone would keep smiling so that everyone could be happy and everybody could be warmer.**_
 
-Luciano Bradley (Code Geass: Lelouch of the Rebellion)
+Minagi Tohno (Air)
