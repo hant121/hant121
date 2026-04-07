@@ -1,3 +1,4 @@
-_**I hate sweets.**_
+_**As they say about the vulgar masses, the more people flock to a group, the more foolish they become. No matter how prominent an individual is, no, it’s because he is prominent that he would be blotted out by the sheer force of numbers when thrown into that lump of people. Individual will, qualifications, and personality, let alone emotions aren’t considered at all.
+We see only what we want to see, listen only to what we want to listen to, but for the things we want to say, we aren’t able to. This is the society that we’re living in right now.**_
 
-Yu Kanda (D.Gray-man)
+Hachiman Hikigaya (My Teen Romantic Comedy SNAFU)
