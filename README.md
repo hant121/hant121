@@ -1,3 +1,3 @@
-_**Power comes in response to a need, not a desire. You have to create that need.**_
+_**Once you find out whom you made the promise to, will you really be able to fall in love with her?**_
 
-Goku (Dragon Ball Z)
+Kanakura Yui (Nisekoi: False Love)
