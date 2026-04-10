@@ -1,3 +1,3 @@
-_**Once you find out whom you made the promise to, will you really be able to fall in love with her?**_
+_**People can really change. When they're far away from each other, their hearts will change. It's so cruel that the only thing I can do is wait.**_
 
-Kanakura Yui (Nisekoi: False Love)
+Ran Mouri (Case Closed)
