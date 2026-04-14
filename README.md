@@ -1,3 +1,3 @@
-_**You're not as slow as you look, monk.**_
+_**If the world is full of things we never wanted to know, is our only option to look away? You won't solve anything by looking away.**_
 
-Naraku (InuYasha)
+Kyousuke Natsume (Little Busters!)
