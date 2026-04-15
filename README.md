@@ -1,3 +1,3 @@
-_**If the world is full of things we never wanted to know, is our only option to look away? You won't solve anything by looking away.**_
+_**When you pick the only option you have to choose from, can you really call that your own decision?**_
 
-Kyousuke Natsume (Little Busters!)
+Hayato Hayama (My Teen Romantic Comedy SNAFU)
