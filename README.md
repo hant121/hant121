@@ -1,3 +1,3 @@
-_**When you pick the only option you have to choose from, can you really call that your own decision?**_
+_**[To Starrk, about Lilynette] That child with you... Can you send her somewhere else? I can't really go all out with her there.**_
 
-Hayato Hayama (My Teen Romantic Comedy SNAFU)
+Shunsui Kyōraku (Bleach)
