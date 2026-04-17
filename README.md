@@ -1,3 +1,3 @@
-_**[To Starrk, about Lilynette] That child with you... Can you send her somewhere else? I can't really go all out with her there.**_
+_**Loyalty to someone is different from depending on them.**_
 
-Shunsui Kyōraku (Bleach)
+Zaraki Kenpachi (Bleach)
