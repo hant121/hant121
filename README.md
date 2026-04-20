@@ -1,3 +1,3 @@
-_**I think running a restaurant would fit you better than being an assassin.**_
+_**Once the thread of fate is tangled, it cannot be undone.**_
 
-Koko Hekmatyar (Jormungand)
+Kikyo (InuYasha)
