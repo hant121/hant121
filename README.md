@@ -1,3 +1,3 @@
-_**It's not like something is going to happen because I believe in it.  Sometimes you end up worse off because you believed in something too much. There are times it's tough to believe in something.**_
+_**I partnered with these two specifically so something like this wouldn't happen. I need symmetry! Maybe I should have listened to my father. He tried to pick out a good weapon for me, but I refused to listen to him! Stubborn! All I cared about, all I wanted was symmetry! Two symmetrical weapons! Was that so much to ask for?! And now all my efforts have been completely and utterly wasted! Damn it!**_
 
-Eureka (Eureka Seven)
+Death the Kid (Soul Eater)
