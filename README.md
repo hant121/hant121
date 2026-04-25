@@ -1,3 +1,3 @@
-_**When I left Syrup Village, I left everything behind! Tranquility… Safety… They face hardships every day, and they laugh like they’re really having fun! That’s why I decided to go out to sea! I want to laugh ’til I cry, too! But if I don’t fight with everything I’ve got, there’s no way I deserve to be on the same boat as them! There’s no way I can laugh with them!**_
+_**And there you go. You heard her, Iri. Our Heroic Spirit thinks a battlefield to be something better than Hell. What a joke. It's Hell itself. There is no hope on a battlefield. There is nothing but unspeakable despair. Just a crime we call victory, paid for by the pain of the defeated. But humanity has never recognized this truth. And the reason is that, in every era, a dazzling hero has blinded the people with their legends, and kept them from seeing the evil of bloodshed. True human nature has not advanced a step beyond the Stone Age.**_
 
-Usopp (One Piece)
+Emiya Kiritsugu (Fate/Zero)
