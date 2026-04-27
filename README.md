@@ -1,3 +1,3 @@
-_**It's over between Kana and me. We're not going to get back together. Even if we were together, I would only miss her... (To Shigure and Ayame)**_
+_**Do you think you can change what's going to happen? Nobody can do anything about it. The whirlpool of hatred is engulfing the universe!**_
 
-Sohma Hatori (Fruits Basket)
+Rau Le Creuset (Mobile Suit Gundam SEED)
