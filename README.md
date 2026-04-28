@@ -1,3 +1,3 @@
-_**Do you think you can change what's going to happen? Nobody can do anything about it. The whirlpool of hatred is engulfing the universe!**_
+_**If you desire one thing for so long, it's a given that you'll miss other things along the way. That's how it is... that's life.**_
 
-Rau Le Creuset (Mobile Suit Gundam SEED)
+Godo (Berserk)
