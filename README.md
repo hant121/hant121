@@ -1,3 +1,3 @@
-_**If you desire one thing for so long, it's a given that you'll miss other things along the way. That's how it is... that's life.**_
+_**Kyon. The contest begins the second someone challenges you. Anything the loser says otherwise is merely an excuse.**_
 
-Godo (Berserk)
+Haruhi Suzumiya (The Melancholy of Haruhi Suzumiya)
