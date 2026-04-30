@@ -1,3 +1,3 @@
-_**Kyon. The contest begins the second someone challenges you. Anything the loser says otherwise is merely an excuse.**_
+_**When you close your eyes and look at the world, what do you see?**_
 
-Haruhi Suzumiya (The Melancholy of Haruhi Suzumiya)
+Lenalee Lee (D.Gray-man)
