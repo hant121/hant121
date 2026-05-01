@@ -1,3 +1,3 @@
-_**When you close your eyes and look at the world, what do you see?**_
+_**You should enjoy the little detours. To the fullest. Because that's where you'll find the things more important than what you want.**_
 
-Lenalee Lee (D.Gray-man)
+Ging Freecss (Hunter x Hunter)
