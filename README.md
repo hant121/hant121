@@ -1,3 +1,3 @@
-_**Those with talent who aren't aware of themselves cause pain for those who have none.**_
+_**To stop or to keep going? The one who decides is yourself.**_
 
-Fuyumi Irisu (Hyouka)
+Shōkichi Naruko (Yowamushi Pedal)
