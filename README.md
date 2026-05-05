@@ -1,3 +1,3 @@
-_**To stop or to keep going? The one who decides is yourself.**_
+_**Talent is something you make bloom, instinct is something you polish.**_
 
-Shōkichi Naruko (Yowamushi Pedal)
+Tooru Oikawa (Haikyu!!)
