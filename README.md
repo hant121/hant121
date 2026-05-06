@@ -1,3 +1,3 @@
-_**Talent is something you make bloom, instinct is something you polish.**_
+_**(To Ichigo Kurosaki) You are a fool, Ichigo Kurosaki. You willingly seek to challenge an opponent so much more powerful than you that it strikes a primal fear into your being. Incomprehensible. If this is the work of the 'heart' that you people speak of, then it is because you possess this 'heart' that you humans bring hurt upon yourself, because you possess this 'heart' that you lose your lives**_
 
-Tooru Oikawa (Haikyu!!)
+Ulquiorra Schiffer (Bleach)
