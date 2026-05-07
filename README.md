@@ -1,3 +1,3 @@
-_**(To Ichigo Kurosaki) You are a fool, Ichigo Kurosaki. You willingly seek to challenge an opponent so much more powerful than you that it strikes a primal fear into your being. Incomprehensible. If this is the work of the 'heart' that you people speak of, then it is because you possess this 'heart' that you humans bring hurt upon yourself, because you possess this 'heart' that you lose your lives**_
+_**Life really is a mysterious thing. Each and every life spins its own, totally separate tale, yet they become intricately entwined in each other. And no one knows how they will end up.**_
 
-Ulquiorra Schiffer (Bleach)
+Decim (Death Parade)
