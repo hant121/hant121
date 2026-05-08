@@ -1,3 +1,3 @@
-_**Life really is a mysterious thing. Each and every life spins its own, totally separate tale, yet they become intricately entwined in each other. And no one knows how they will end up.**_
+_**I could say I'm not sad, but I'd be lying. The problem is the world won't let me stay a kid forever, so I can't lie around crying about it either.**_
 
-Decim (Death Parade)
+Nara Shikamaru (Naruto)
