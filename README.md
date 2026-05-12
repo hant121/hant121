@@ -1,3 +1,3 @@
-_**Even if I die, you keep living okay? Live to see the end of this world, and to see why it was born. Live to see why a weak girl like me ended up here. And the reason you and I met.**_
+_**The human heart is the source of all our power... We fight with the power of our hearts.**_
 
-Sachi (Sword Art Online)
+Lelouch Lamperouge (Code Geass: Lelouch of the Rebellion)
