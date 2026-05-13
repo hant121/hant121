@@ -1,3 +1,3 @@
-_**The human heart is the source of all our power... We fight with the power of our hearts.**_
+_**Naked lady!**_
 
-Lelouch Lamperouge (Code Geass: Lelouch of the Rebellion)
+Soul Evans (Soul Eater)
