@@ -1,3 +1,3 @@
-_**Naked lady!**_
+_**Choosing your calling based solely on your talents won't always guarantee you happiness.**_
 
-Soul Evans (Soul Eater)
+Kaminski Natalia (Fate/Zero)
