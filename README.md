@@ -1,3 +1,3 @@
-_**Choosing your calling based solely on your talents won't always guarantee you happiness.**_
+_**Do you know what a scientist fears most in this world above all else? It's oblivion, my friend. A scientist measures our lives in the ways we develop and expand our knowledge through myriad variations. Nothing can take its place. It's our very soul. I have done the worst thing one scientist can do to another: I have altered your thought process. When my drug takes effect, you will find your mind has lost the ability to think.**_
 
-Kaminski Natalia (Fate/Zero)
+Kurotsuchi Mayuri (Bleach)
