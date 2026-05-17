@@ -1,3 +1,3 @@
-_**Yes, I'm the nice twin, but this conversation bores me. Go play in traffic, please.**_
+_**The words of your past are fundamentally unrelated to who you are now.**_
 
-Hikaru Hitachiin (Ouran High School Host Club)
+Ryuunosuke Akutagawa (Bungo Stray Dogs 2)
