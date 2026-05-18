@@ -1,3 +1,3 @@
-_**The words of your past are fundamentally unrelated to who you are now.**_
+_**In this small universe, it's an endless cycle of winning and losing until you begin losing your mind.**_
 
-Ryuunosuke Akutagawa (Bungo Stray Dogs 2)
+Rei Kiriyama (March Comes In Like a Lion)
