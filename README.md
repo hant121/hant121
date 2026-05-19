@@ -1,3 +1,3 @@
-_**In this small universe, it's an endless cycle of winning and losing until you begin losing your mind.**_
+_**There is no inherent right or wrong in this world, those labels are just artificial constructs. Right and wrong are held by positions of authority. That is the way it's always been, so how then could anyone know this truth you speak of? Don't you see the reality is that truth long ago became nothing more than a shadow of itself; it's a mere echo of the past now... The world is one big moral gray area, it just makes you feel safer that it can be categorized into good and bad, but that's not how it actually works.**_
 
-Rei Kiriyama (March Comes In Like a Lion)
+Franken Stein (Soul Eater)
