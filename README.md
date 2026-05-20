@@ -1,3 +1,3 @@
-_**There is no inherent right or wrong in this world, those labels are just artificial constructs. Right and wrong are held by positions of authority. That is the way it's always been, so how then could anyone know this truth you speak of? Don't you see the reality is that truth long ago became nothing more than a shadow of itself; it's a mere echo of the past now... The world is one big moral gray area, it just makes you feel safer that it can be categorized into good and bad, but that's not how it actually works.**_
+_**I've continually fought, and with each battle I've been killing my own heart. And my heart has been completely void of feeling for quite a long time now. Maybe my life doesn't have value anymore, but I have to keep on living.**_
 
-Franken Stein (Soul Eater)
+Trowa Barton (Mobile Suit Gundam Wing)
