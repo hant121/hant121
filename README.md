@@ -1,3 +1,3 @@
-_**Whenever you fight from this point on, there is one thing you must never do. Which is...to die alone.**_
+_**Before creation… must come destruction!**_
 
-Shiba Kaien (Bleach)
+Beerus (Dragon Ball Z)
