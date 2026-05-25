@@ -1,3 +1,3 @@
-_**Before creation… must come destruction!**_
+_**People don't give damn about reasons, but nobody can resist miracles.**_
 
-Beerus (Dragon Ball Z)
+Lelouch Lamperouge (Code Geass: Lelouch of the Rebellion)
