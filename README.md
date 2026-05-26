@@ -1,3 +1,3 @@
-_**People don't give damn about reasons, but nobody can resist miracles.**_
+_**What is important to survival isn't the ability to hide and protect yourself, it is to stand up and fight the Kabane.**_
 
-Lelouch Lamperouge (Code Geass: Lelouch of the Rebellion)
+Biba Amatori (Kabaneri of the Iron Fortress)
