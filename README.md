@@ -1,3 +1,3 @@
-_**What is important to survival isn't the ability to hide and protect yourself, it is to stand up and fight the Kabane.**_
+_***to Kikyo* I swear... I will never let Naraku harm you.**_
 
-Biba Amatori (Kabaneri of the Iron Fortress)
+Inuyasha (InuYasha)
