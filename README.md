@@ -1,3 +1,3 @@
-_***to Kikyo* I swear... I will never let Naraku harm you.**_
+_**There are things that we don't want to happen, but have to accept. Things that we don't want to know, but have to learn. And people that we can't live without, but have to let go.**_
 
-Inuyasha (InuYasha)
+Mai Taniyama (Ghost Hunt)
