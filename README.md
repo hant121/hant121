@@ -1,3 +1,3 @@
-_**There are things that we don't want to happen, but have to accept. Things that we don't want to know, but have to learn. And people that we can't live without, but have to let go.**_
+_**Isn't it arrogant to put a price on whether life is "higher" or "lower", Kaneki? We are just bags of meat. The weak bow down and the strong devour them. Rather, if you compared them to all living things, it's humans who have shaved away the most lives. We are different than them.**_
 
-Mai Taniyama (Ghost Hunt)
+Shuu Tsukiyama (Tokyo Ghoul)
