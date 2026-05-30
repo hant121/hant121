@@ -1,3 +1,3 @@
-_**Isn't it arrogant to put a price on whether life is "higher" or "lower", Kaneki? We are just bags of meat. The weak bow down and the strong devour them. Rather, if you compared them to all living things, it's humans who have shaved away the most lives. We are different than them.**_
+_**The root of all your evil is in always relying on one of your other possibilities to get your wish. You must accept that you are the person here, now, and that you cannot become anyone else other than that person.**_
 
-Shuu Tsukiyama (Tokyo Ghoul)
+Higuchi Seitarou (The Tatami Galaxy)
