@@ -1,3 +1,3 @@
-_**The root of all your evil is in always relying on one of your other possibilities to get your wish. You must accept that you are the person here, now, and that you cannot become anyone else other than that person.**_
+_**I felt like I was watching a dream I'd never wake up from. Before I knew it, the dream was all over.**_
 
-Higuchi Seitarou (The Tatami Galaxy)
+Spike Spiegel (Cowboy Bebop)
