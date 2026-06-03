@@ -1,3 +1,3 @@
-_**I think that in the end, I just care a lot about myself. I was the only one that I loved and respected. That's why I was scared to know what the others thought about me. I was afraid to get hurt, so I ran away and locked myself into my shell.**_
+_**Please, let that iron guard down for a minute. It's only hurting you. I know when you've hit rock bottom, people trying to cheer you up can be really annoying. "What would you know?" "Just leave me alone." But what if someone you're pushing away is really worried about you? That'd be a shame.**_
 
-Kirara (Gintama)
+Kaizaki Arata (ReLIFE)
