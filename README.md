@@ -1,3 +1,3 @@
-_**Courage is being scared to death, but doing it anyways.**_
+_**There is nothing left to believe in.**_
 
-Muguruma Kensei (Bleach)
+Vicious (Cowboy Bebop)
