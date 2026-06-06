@@ -1,3 +1,3 @@
-_**There is nothing left to believe in.**_
+_**And can you offer me proof of your existence? How can you, when neither modern science nor philosophy can explain what life is?**_
 
-Vicious (Cowboy Bebop)
+Puppet Master (Ghost in the Shell)
