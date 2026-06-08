@@ -1,3 +1,3 @@
-_**Only hope can give rise to the emotion we call despair. But it is nearly impossible for a man to try to live without hope, so I guess that leaves Man no choice but to walk around with despair as his companion.**_
+_**Even though there's such a thing as an impossible game, there's no such thing as an impossible reality.**_
 
-Kagetoki Kariya (Samurai Champloo)
+Kagami Junichirou (Ultimate Otaku Teacher)
