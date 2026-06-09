@@ -1,3 +1,3 @@
-_**Even though there's such a thing as an impossible game, there's no such thing as an impossible reality.**_
+_**I am who I am now because of everything that's happened. If I try to deny my past, I'm denying the person I've become. I don't want to do that.**_
 
-Kagami Junichirou (Ultimate Otaku Teacher)
+Iori Nagase (Kokoro Connect)
