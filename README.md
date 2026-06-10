@@ -1,3 +1,3 @@
-_**I am who I am now because of everything that's happened. If I try to deny my past, I'm denying the person I've become. I don't want to do that.**_
+_**You shouldn't judge people by how they look.**_
 
-Iori Nagase (Kokoro Connect)
+Yato (Noragami)
