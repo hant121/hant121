@@ -1,3 +1,3 @@
-_**You shouldn't judge people by how they look.**_
+_**It's not a sin to fall in love. You can't even arrest someone over that.**_
 
-Yato (Noragami)
+Gajeel Redfox (Fairy Tail)
