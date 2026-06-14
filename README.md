@@ -1,3 +1,3 @@
-_**You never thought to kill, or fight for revenge. Only to test your limits, and to push yourself beyond them, to become the strongest you could possibly be. How can a Saiyan fight like that, and at the same time be so gentle that he wouldn't hurt a fly? It makes me angry just thinking about it. But perhaps it is my anger that has made me blind to the truth for so long. I see it now. This day has made it all too clear. You're better than me, Kakarot. You are the best...**_
+_**Hey, mutt! I need exercise, so I'll play with you!**_
 
-Vegeta (Dragon Ball)
+Edward Elric (Fullmetal Alchemist)
