@@ -1,3 +1,3 @@
-_**Hey, mutt! I need exercise, so I'll play with you!**_
+_**It doesn't matter who I am. You can just think of me as the talking air.**_
 
-Edward Elric (Fullmetal Alchemist)
+Claire Stanfield (Baccano!)
