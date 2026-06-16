@@ -1,3 +1,3 @@
-_**It doesn't matter who I am. You can just think of me as the talking air.**_
+_**The future is always blank. Only your willpower can leave footsteps there.**_
 
-Claire Stanfield (Baccano!)
+Satoru Fujinuma (Erased)
