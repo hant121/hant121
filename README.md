@@ -1,3 +1,3 @@
-_**The future is always blank. Only your willpower can leave footsteps there.**_
+_**When you confess your feelings, you should do a proper job.**_
 
-Satoru Fujinuma (Erased)
+Oogumo (Guilty Crown)
