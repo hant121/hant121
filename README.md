@@ -1,3 +1,3 @@
-_**Prophecies don't ever come true.**_
+_**That's right, I am Kira. And what can you do? Kill me right here?**_
 
-Saitama (One Punch Man)
+Light Yagami (Death Note)
