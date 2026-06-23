@@ -1,3 +1,3 @@
-_**No world is more painful to live in than this one.**_
+_**Something as shady as a witch couldn't possibly exist.**_
 
-Strength (Black Rock Shooter)
+Ushiromiya Battler (Umineko: When They Cry)
