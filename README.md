@@ -1,3 +1,3 @@
-_**Something as shady as a witch couldn't possibly exist.**_
+_**I was wondering. Do souls taste good? You seem to like 'em.**_
 
-Ushiromiya Battler (Umineko: When They Cry)
+Maka Albarn (Soul Eater)
