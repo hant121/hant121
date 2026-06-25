@@ -1,3 +1,3 @@
-_**I was wondering. Do souls taste good? You seem to like 'em.**_
+_**Only those who do their jobs on the battlefield get the rewards they desire. That's the life of a warrior.**_
 
-Maka Albarn (Soul Eater)
+Askeladd (Vinland Saga)
