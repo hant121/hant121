@@ -1,3 +1,3 @@
-_**Only those who do their jobs on the battlefield get the rewards they desire. That's the life of a warrior.**_
+_**You shouldn't mouth off when you don't know shit.**_
 
-Askeladd (Vinland Saga)
+Shinichi Izumi (Parasyte: The Maxim)
