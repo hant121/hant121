@@ -1,3 +1,3 @@
-_**[to Ichigo] Don't forget my name, Soul Reaper, and you better pray that you never hear it again! Grimmjow Jaegerjaquez...because the next time you hear my name, you'll be a dead man...I promise.**_
+_**Poetry over philosophy. Embroidery rather than cooking. Dance instead of chess. Be an unknowing angel. Every girl born in the country of roses is raised by these three words.**_
 
-Grimmjow Jeagerjaques (Bleach)
+Elizabeth Midford (Black Butler)
