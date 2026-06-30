@@ -1,3 +1,3 @@
-_**Even your gravest mistakes shouldn't stop you from moving forward.**_
+_**If comrades that you trust gather around you, hope can take physical form and become visible. That`s what I believe...**_
 
-Edward Elric (Fullmetal Alchemist)
+Hatake Kakashi (Naruto)
