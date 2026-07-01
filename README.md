@@ -1,3 +1,3 @@
-_**If comrades that you trust gather around you, hope can take physical form and become visible. That`s what I believe...**_
+_**Real pain is the result of losing someone you care about.**_
 
-Hatake Kakashi (Naruto)
+Kazuto Kirigaya (Sword Art Online)
