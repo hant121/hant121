@@ -1,3 +1,3 @@
-_**Someday we'll part. Maybe be forgotten. But we're living in the moment. So... make lots of friends, fall madly in love, and enjoy every moment to the fullest.**_
+_**[Singing to Yammy] Aizen-sama will get maaaad at youuuu!**_
 
-Kaizaki Arata (ReLIFE)
+Urahara Kisuke (Bleach)
