@@ -1,3 +1,3 @@
-_**True beauty lies in things that last forever, never rotting or fading.**_
+_**Loving a person isn’t about logic or reason.**_
 
-Sasori (Naruto)
+Yukari Hayasaka (Paradise Kiss)
