@@ -1,3 +1,3 @@
-_**Loving a person isn’t about logic or reason.**_
+_**It's pointless to force people to do their best if they don't want to.**_
 
-Yukari Hayasaka (Paradise Kiss)
+Hansode Shiranui (Medaka Box)
