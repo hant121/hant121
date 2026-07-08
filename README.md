@@ -1,3 +1,3 @@
-_**It's pointless to force people to do their best if they don't want to.**_
+_**A man who cannot play by himself, cannot improve by himself.**_
 
-Hansode Shiranui (Medaka Box)
+Midorima Shintarou (Kuroko's Basketball - duplicate)
