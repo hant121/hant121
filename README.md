@@ -1,3 +1,3 @@
-_**Don't give up, the beginning is always the hardest, so let's keep on going till the very end.**_
+_**A lot of people are too scared to admit that they're still children. They do everything they can to avoid it. So people who can admit that have a lot of courage.**_
 
-Natsu Dragneel (Fairy Tail)
+Honda Tohru (Fruits Basket)
