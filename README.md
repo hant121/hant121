@@ -1,3 +1,3 @@
-_**A lot of people are too scared to admit that they're still children. They do everything they can to avoid it. So people who can admit that have a lot of courage.**_
+_**Lies are like colours. The more you pile up, the blacker things get.**_
 
-Honda Tohru (Fruits Basket)
+Yuuji Kazami (The Fruit of Grisaia)
