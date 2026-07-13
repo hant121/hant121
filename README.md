@@ -1,3 +1,3 @@
-_**Lies are like colours. The more you pile up, the blacker things get.**_
+_**This is the first time in my life that I've been provoked to hit a woman.**_
 
-Yuuji Kazami (The Fruit of Grisaia)
+Light Yagami (Death Note)
