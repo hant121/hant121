@@ -1,3 +1,3 @@
-_**This is the first time in my life that I've been provoked to hit a woman.**_
+_**And if when everything ends, nothing is left in my hands...that's alright.**_
 
-Light Yagami (Death Note)
+Sohma Rin (Fruits Basket)
