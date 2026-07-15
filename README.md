@@ -1,3 +1,3 @@
-_**And if when everything ends, nothing is left in my hands...that's alright.**_
+_**One more word Shigure and the entire publishing industry will know every embarrassing thing you've done since you were four.**_
 
-Sohma Rin (Fruits Basket)
+Sohma Hatori (Fruits Basket)
