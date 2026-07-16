@@ -1,3 +1,3 @@
-_**One more word Shigure and the entire publishing industry will know every embarrassing thing you've done since you were four.**_
+_**The only thing waiting for you outside is a world of death.**_
 
-Sohma Hatori (Fruits Basket)
+Re-L Mayer (Ergo Proxy)
