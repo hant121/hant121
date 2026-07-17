@@ -1,3 +1,3 @@
-_**The only thing waiting for you outside is a world of death.**_
+_**If it is with Ayuzawa, whatever I do, wherever I am, I am happy. So it's okay.**_
 
-Re-L Mayer (Ergo Proxy)
+Takumi Usui (Maid Sama!)
