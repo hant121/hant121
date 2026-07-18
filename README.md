@@ -1,3 +1,3 @@
-_**If it is with Ayuzawa, whatever I do, wherever I am, I am happy. So it's okay.**_
+_**If you've forgotten death... then you've forgotten what it truly means to be alive.**_
 
-Takumi Usui (Maid Sama!)
+Casshern (Casshern Sins)
