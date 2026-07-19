@@ -1,3 +1,3 @@
-_**If you've forgotten death... then you've forgotten what it truly means to be alive.**_
+_***to Inuyasha* I quite miss you as well, little brother.**_
 
-Casshern (Casshern Sins)
+Sesshomaru (InuYasha)
