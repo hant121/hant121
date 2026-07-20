@@ -1,3 +1,3 @@
-_***to Inuyasha* I quite miss you as well, little brother.**_
+_**I don’t want to regret anything because of the way I lived.**_
 
-Sesshomaru (InuYasha)
+Yuji Itadori (Jujutsu Kaisen)
