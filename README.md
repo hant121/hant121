@@ -1,3 +1,3 @@
-_**I don’t want to regret anything because of the way I lived.**_
+_**[to Hisagi] Open my eyes? You? Open my eyes? You never change.**_
 
-Yuji Itadori (Jujutsu Kaisen)
+Tousen Kaname (Bleach)
