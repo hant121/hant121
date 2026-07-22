@@ -1,3 +1,3 @@
-_**[to Hisagi] Open my eyes? You? Open my eyes? You never change.**_
+_**Ugly?! Who you callin' ugly?! C'mere you mouse!**_
 
-Tousen Kaname (Bleach)
+Kazuma Kuwabara (Yu Yu Hakusho)
