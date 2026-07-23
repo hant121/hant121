@@ -1,3 +1,3 @@
-_**Ugly?! Who you callin' ugly?! C'mere you mouse!**_
+_**These days, there are angry ghosts all around us. Dead from wars, sickness, starvation, and nobody cares. So - you say you're under a curse. So what, so's the whole damn world.**_
 
-Kazuma Kuwabara (Yu Yu Hakusho)
+Jigo (Princess Mononoke)
