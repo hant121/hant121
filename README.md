@@ -1,3 +1,3 @@
-_**These days, there are angry ghosts all around us. Dead from wars, sickness, starvation, and nobody cares. So - you say you're under a curse. So what, so's the whole damn world.**_
+_**If you want to get to know someone, you need to make an effort to learn why they're angry.**_
 
-Jigo (Princess Mononoke)
+Mito Freecss (Hunter x Hunter)
