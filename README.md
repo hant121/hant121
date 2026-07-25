@@ -1,3 +1,3 @@
-_**If you want to get to know someone, you need to make an effort to learn why they're angry.**_
+_**Sometimes the blood rushes to my head and I feel like, if I run I’ll lose something important.**_
 
-Mito Freecss (Hunter x Hunter)
+Portgas D. Ace (One Piece)
