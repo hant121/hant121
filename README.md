@@ -1,3 +1,3 @@
-_**Sometimes the blood rushes to my head and I feel like, if I run I’ll lose something important.**_
+_**If I fail to make my every-minute reports, a gang of 5,000 brutes will attack your whole family.**_
 
-Portgas D. Ace (One Piece)
+Senjougahara Hitagi (Bakemonogatari)
