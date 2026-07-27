@@ -1,3 +1,3 @@
-_**If I fail to make my every-minute reports, a gang of 5,000 brutes will attack your whole family.**_
+_**It's not good to expect too much, but you can't do anything if you're being overly pessimistic. If you just wait thinking it's useless, nothing will come of it.**_
 
-Senjougahara Hitagi (Bakemonogatari)
+Shinobu Oshino (Monogatari Series: Second Season)
