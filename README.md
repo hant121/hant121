@@ -1,3 +1,3 @@
-_**I don't think it's possible to save everyone. I just want to save as many as I can.**_
+_**In truth everyone gets their wings the day they are born, and if one has the courage to spread those wings, then he'll fly for sure**_
 
-Emiya Kiritsugu (Fate/Zero)
+Rika Noyamano (Air Gear)
