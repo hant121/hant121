@@ -1,3 +1,3 @@
-_**In truth everyone gets their wings the day they are born, and if one has the courage to spread those wings, then he'll fly for sure**_
+_**It's not a sense of justice. Figuring out difficult cases is my hobby. If you measured good and evil deeds by current laws, I would be responsible for many crimes. The same way you all like to solve mysteries and riddles, or clear video games more quickly. For me too, it's simply prolonging something I enjoy doing. That's why I only take on cases that pique my interest. It's not justice at all. And if it means being able to clear a case, I don't play fair, I'm a dishonest, cheating human being who hates losing.**_
 
-Rika Noyamano (Air Gear)
+L Lawliet (Death Note)
