@@ -1,3 +1,3 @@
-_**It's not a sense of justice. Figuring out difficult cases is my hobby. If you measured good and evil deeds by current laws, I would be responsible for many crimes. The same way you all like to solve mysteries and riddles, or clear video games more quickly. For me too, it's simply prolonging something I enjoy doing. That's why I only take on cases that pique my interest. It's not justice at all. And if it means being able to clear a case, I don't play fair, I'm a dishonest, cheating human being who hates losing.**_
+_**Instead of humans who lie and cheat each other to get richer, I prefer animals who hunt to survive.**_
 
-L Lawliet (Death Note)
+Detective Conan (Case Closed)
