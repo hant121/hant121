@@ -1,3 +1,3 @@
-_**Instead of humans who lie and cheat each other to get richer, I prefer animals who hunt to survive.**_
+_**I too, was looking for something. Something real in this world. For me, it was the warmth of your hand.**_
 
-Detective Conan (Case Closed)
+Lisbeth (Sword Art Online)
