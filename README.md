@@ -1,3 +1,3 @@
-_**I too, was looking for something. Something real in this world. For me, it was the warmth of your hand.**_
+_**You give up your future, lose your dream, are stained with despair... yet at the same time, you shake off you past, fight reality, and never lose your nobility.**_
 
-Lisbeth (Sword Art Online)
+Sebastian Michaelis (Black Butler)
