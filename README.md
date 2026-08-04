@@ -1,3 +1,3 @@
-_**Gin-chan told me to pay people back double for revenge!**_
+_**I will get back up as often as it takes, and each time, I won't be beaten.**_
 
-Kagura (Gintama)
+Shinra Kusakabe (Fire Force)
