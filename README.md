@@ -1,3 +1,3 @@
-_**I will get back up as often as it takes, and each time, I won't be beaten.**_
+_**If I really liked him I should hope for his happiness. But like you said in the car, I actually hoped they would break up.**_
 
-Shinra Kusakabe (Fire Force)
+Ayumi Yamada (Honey and Clover)
