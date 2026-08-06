@@ -1,3 +1,3 @@
-_**If I really liked him I should hope for his happiness. But like you said in the car, I actually hoped they would break up.**_
+_**Just because you die... doesn't mean that the people you killed will come back to life... instead using this sword to save just one more soul is repentance in true sense.**_
 
-Ayumi Yamada (Honey and Clover)
+Kenshin Himura (Rurouni Kenshin)
