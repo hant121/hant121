@@ -1,3 +1,3 @@
-_***to Okita, who tells him that he should take his job more seriously* Shall I put you to sleep, ingrate?**_
+_**Sometimes feelings get tangled together with deductions, forming a veil that hides the truth.**_
 
-Hijikata Toushirou (Gintama)
+Shinichi Kudou (Case Closed)
