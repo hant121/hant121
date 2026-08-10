@@ -1,3 +1,3 @@
-_**Living things are restrained by Chains: The laws of nature, the flow of time, the vessel known as your “body”, and the existence called your mind. There's only one chain that people can wield: WORDS.**_
+_**And what's the real lesson? Don't leave things in the fridge.**_
 
-Yuuko Ichihara (xxxHOLiC)
+Spike Spiegel (Cowboy Bebop)
