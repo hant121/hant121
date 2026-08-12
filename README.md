@@ -1,3 +1,3 @@
-_**It's alright to feel sad. When you're sad, you should experience that sorrow fully. It's not too late to move on after that.**_
+_**Humans cannot create anything out of nothingness. Humans cannot accomplish anything without holding onto something. After all, humans are not gods.**_
 
-Urutori (Utawarerumono)
+Kaworu Nagisa (Neon Genesis Evangelion)
