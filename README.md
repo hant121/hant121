@@ -1,3 +1,3 @@
-_**Humans cannot create anything out of nothingness. Humans cannot accomplish anything without holding onto something. After all, humans are not gods.**_
+_**Life is too bitter, so coffee, at least, should be sweet…**_
 
-Kaworu Nagisa (Neon Genesis Evangelion)
+Hachiman Hikigaya (My Teen Romantic Comedy SNAFU)
