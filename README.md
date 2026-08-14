@@ -1,3 +1,3 @@
-_**Life is too bitter, so coffee, at least, should be sweet…**_
+_**Even if you can't walk or stand and even if you can't have kids, I'll still marry you, I'll always stay by your side.**_
 
-Hachiman Hikigaya (My Teen Romantic Comedy SNAFU)
+Hideki Hinata (Angel Beats!)
