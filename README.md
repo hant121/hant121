@@ -1,3 +1,3 @@
-_**Even if you can't walk or stand and even if you can't have kids, I'll still marry you, I'll always stay by your side.**_
+_**Boys, am I not always telling you to get in touch with your feelings, your inner gangster? Okay, actually I don't care about your feelings, never did, never will.**_
 
-Hideki Hinata (Angel Beats!)
+RYU (Shaman King)
