@@ -1,3 +1,3 @@
-_**Boys, am I not always telling you to get in touch with your feelings, your inner gangster? Okay, actually I don't care about your feelings, never did, never will.**_
+_**There are two things that collectors always want. The first is any item of extreme rarity. The second is colleagues to whom they can brag about theircollection.**_
 
-RYU (Shaman King)
+Kurapika (Hunter x Hunter)
