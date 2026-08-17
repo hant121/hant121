@@ -1,3 +1,3 @@
-_**There are two things that collectors always want. The first is any item of extreme rarity. The second is colleagues to whom they can brag about theircollection.**_
+_**Those stars look like they're close to each other, but they're actually very far away, aren't they? It's like Kitamura-kun and I. The things you see aren't always real. How hard must I try in order to understand the unseen truth?**_
 
-Kurapika (Hunter x Hunter)
+Taiga Aisaka (Toradora!)
