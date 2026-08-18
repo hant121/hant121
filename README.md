@@ -1,3 +1,3 @@
-_**Those stars look like they're close to each other, but they're actually very far away, aren't they? It's like Kitamura-kun and I. The things you see aren't always real. How hard must I try in order to understand the unseen truth?**_
+_**The reason doesn't matter. As long as tiny bit of hope exists, that's all that matters.**_
 
-Taiga Aisaka (Toradora!)
+Tatsumi (Akame ga Kill!)
