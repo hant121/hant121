@@ -1,3 +1,3 @@
-_**Why so cold, Nanao-chan?**_
+_**They say the tongue is the root of all misfortune.**_
 
-Shunsui Kyōraku (Bleach)
+Rukia Kuchiki (Bleach)
