@@ -1,3 +1,3 @@
-_**There’s no such thing as fair or unfair in battle. There is only victory or in your case, defeat.**_
+_**Love is the reason why there is pain. When we lose someone precious to us, hate is born. Vengeance is the product of that hate and so death follows. But in death there is only more death. This will give rise to more pains. In this cursed world we live in, it is a cycle of hatred that will not cease. You and I seek the same thing that Jiraiya-sensei wanted. Let me ask you this: How will you confront this hatred in order to create peace?**_
 
-Vegeta (Dragon Ball Z)
+Pain (Naruto)
