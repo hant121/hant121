@@ -1,3 +1,3 @@
-_**It is right for me, but not for you. Either way, the concept of "right" means no more than that.**_
+_**There is no meaning to victory, if you win alone.**_
 
-Magata Shiki (The Perfect Insider)
+Kuroko No Basket (Kuroko's Basketball - duplicate)
