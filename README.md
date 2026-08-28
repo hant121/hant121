@@ -1,3 +1,3 @@
-_**There is no meaning to victory, if you win alone.**_
+_**Trunks, I never hugged you as a baby… let me hug you.**_
 
-Kuroko No Basket (Kuroko's Basketball - duplicate)
+Vegeta (Dragon Ball Z)
