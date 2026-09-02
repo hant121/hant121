@@ -1,3 +1,3 @@
-_**Knowing more means having more shit to deal with, you know.**_
+_**Whoever said one's first love is bittersweet, is a liar. It is only bitter.**_
 
-Hachiman Hikigaya (My Teen Romantic Comedy SNAFU)
+Renton Thurston (Eureka Seven)
