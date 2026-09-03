@@ -1,3 +1,3 @@
-_**Whoever said one's first love is bittersweet, is a liar. It is only bitter.**_
+_**You listen carefully, Sena. That's the one person you definitely do not want to associate with! That one called Hiruma, he's like a demon! Once he gets his eye on you, he'll drain all the life out of you until there's nothing left but skin and bones!**_
 
-Renton Thurston (Eureka Seven)
+Anezaki Mamori (Eyeshield 21)
