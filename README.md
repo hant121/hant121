@@ -1,3 +1,3 @@
-_**[to an arrogant projectile-specialist Shinigami] Apparently, on this side, "ultimate master" means a windbag with diarrhea of the mouth.**_
+_**Life is an incessant series of problems... all difficult, with brutally limited choices... and a time limit.**_
 
-Uryuu Ishida (Bleach)
+Chapel the Evergreen (Trigun)
