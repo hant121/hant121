@@ -1,3 +1,3 @@
-_**Life is an incessant series of problems... all difficult, with brutally limited choices... and a time limit.**_
+_**Calling me a coward, eh? At least say it so I can hear it...**_
 
-Chapel the Evergreen (Trigun)
+Uryuu Ishida (Bleach)
