@@ -1,3 +1,3 @@
-_**Calling me a coward, eh? At least say it so I can hear it...**_
+_**Right now, I'm lightheaded in reality, and in my mind, so misguided or not, I can be a hero, too.**_
 
-Uryuu Ishida (Bleach)
+Shinra Kusakabe (Fire Force)
