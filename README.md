@@ -1,3 +1,3 @@
-_**Right now, I'm lightheaded in reality, and in my mind, so misguided or not, I can be a hero, too.**_
+_**All things shine at their most brilliant when they're being broken.**_
 
-Shinra Kusakabe (Fire Force)
+Urisu (selector spread WIXOSS)
