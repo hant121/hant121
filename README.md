@@ -1,3 +1,3 @@
-_**All things shine at their most brilliant when they're being broken.**_
+_**Despair to the ones who become swelled with pride.**_
 
-Urisu (selector spread WIXOSS)
+Truth (Fullmetal Alchemist: Brotherhood)
