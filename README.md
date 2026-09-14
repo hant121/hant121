@@ -1,3 +1,3 @@
-_**Anyone can die. It's living that requires courage.**_
+_**To win, but not destroy; to conquer, but not humiliate: That is what true conquest is!**_
 
-Kenshin Himura (Rurouni Kenshin)
+Rider (Fate/Zero)
