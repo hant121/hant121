@@ -1,3 +1,3 @@
-_**To win, but not destroy; to conquer, but not humiliate: That is what true conquest is!**_
+_**You've trapped yourself in a body you hated hiding in the pain, and now you want to torture yourself again for eternity...haven't we both paid enough?**_
 
-Rider (Fate/Zero)
+Genkai (Yu Yu Hakusho)
