@@ -1,3 +1,3 @@
-_**You've trapped yourself in a body you hated hiding in the pain, and now you want to torture yourself again for eternity...haven't we both paid enough?**_
+_**I don't care what the society says. I've regretted doing anything. I will survive and do what I want to.**_
 
-Genkai (Yu Yu Hakusho)
+Roronoa Zoro (One Piece)
