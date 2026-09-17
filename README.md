@@ -1,3 +1,3 @@
-_**I don't care what the society says. I've regretted doing anything. I will survive and do what I want to.**_
+_**Even if I am to carry all the evils of this world, it won't matter. If that can save the world, then I'd gladly accept it.**_
 
-Roronoa Zoro (One Piece)
+Emiya Kiritsugu (Fate/Zero)
