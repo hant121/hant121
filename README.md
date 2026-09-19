@@ -1,3 +1,3 @@
-_**Reality is just a crappy game!**_
+_**Our souls, together till the end!**_
 
-Keima Katsuragi (The World God Only Knows)
+Tsubaki Nakatsukasa (Soul Eater)
