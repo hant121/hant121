@@ -1,3 +1,3 @@
-_**Death is the end of everything. Your past and future will be lost in an instant where there will be no second chance. However as long as you live there will be a chance of pulling a win.**_
+_**From the moment I first saw you, you’ve looked so sad. Your face shows so much pain. Your eyes were like mine. They looked so sad, so hurt, so lonely… as if you couldn’t stand it.**_
 
-Kazuma Yagami (Kaze no Stigma)
+Claymore (Claymore)
