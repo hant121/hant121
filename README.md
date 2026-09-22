@@ -1,3 +1,3 @@
-_**From the moment I first saw you, you’ve looked so sad. Your face shows so much pain. Your eyes were like mine. They looked so sad, so hurt, so lonely… as if you couldn’t stand it.**_
+_**I'm pretty confident about my reflexes. And pretty strong too. I'm a guy after all. When the time comes, I can protect you even at the cost of my life.**_
 
-Claymore (Claymore)
+Hideki Hinata (Angel Beats!)
