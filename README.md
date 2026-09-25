@@ -1,3 +1,3 @@
-_**I haven't relied on luck since the moment I was born. Everything has been the result of my choices. That is what leads my existence towards the future.**_
+_**Humans... Do humans have a purpose when they are born? I have been wondering recently. Because they are born, do they have an important duty? The meaning of being born... For humans to find that answer... It is the one freedom God gave them.**_
 
-Kagura Mikazuchi (Fairy Tail)
+Kimimaro (Naruto)
