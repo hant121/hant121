@@ -1,3 +1,3 @@
-_**Humans... Do humans have a purpose when they are born? I have been wondering recently. Because they are born, do they have an important duty? The meaning of being born... For humans to find that answer... It is the one freedom God gave them.**_
+_**You're just too busy comparing yourself to others to see. Those comparisons aren't the only measure. Don't say it's all pointless. You've work hard and made yourself better. That's what you got in return. So don't put yourself down like this.**_
 
-Kimimaro (Naruto)
+Kaizaki Arata (ReLIFE)
