@@ -1,3 +1,3 @@
-_***to Inuyasha* Your stupidity knows no boundaries. Run and hide while you can.**_
+_**I never knew until the first years came, that we all cared about different things.**_
 
-Sesshomaru (InuYasha)
+Chihaya Ayase (Chihayafuru 2)
