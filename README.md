@@ -1,3 +1,3 @@
-_**I never knew until the first years came, that we all cared about different things.**_
+_**I've always been asking myself this question. Am I a memory? or is the memory... ME? Are we nothing but a collection of memories?**_
 
-Chihaya Ayase (Chihayafuru 2)
+Motoharu Yano (We Were There)
