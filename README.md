@@ -1,3 +1,3 @@
-_**I've always been asking myself this question. Am I a memory? or is the memory... ME? Are we nothing but a collection of memories?**_
+_**The old you’s not going anywhere with that emo look on your face! If you overcome that gloomy self of yours… let me know. Or else I’ll start spreading rumors about high school debut man.**_
 
-Motoharu Yano (We Were There)
+Mina Ashido (My Hero Academia)
