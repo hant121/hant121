@@ -1,3 +1,3 @@
-_**Duh!! There's no such thing as free wish.**_
+_**Reject common sense to make the impossible possible!**_
 
-Yato (Noragami)
+Simon (Gurren Lagann)
