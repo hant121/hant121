@@ -1,3 +1,3 @@
-_**Reject common sense to make the impossible possible!**_
+_**If you're scared, you might as well just cling to my arm. Creates more of an atmosphere.**_
 
-Simon (Gurren Lagann)
+Kyon (The Melancholy of Haruhi Suzumiya)
