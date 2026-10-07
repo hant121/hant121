@@ -1,3 +1,3 @@
-_**If you're scared, you might as well just cling to my arm. Creates more of an atmosphere.**_
+_**Games are fun because you can do things you couldn’t in real life, right?**_
 
-Kyon (The Melancholy of Haruhi Suzumiya)
+Akatsuki (Log Horizon)
