@@ -1,3 +1,3 @@
-_**Games are fun because you can do things you couldn’t in real life, right?**_
+_**This is DUUUMMMBBB!!!!!!**_
 
-Akatsuki (Log Horizon)
+Yuusuke Urameshi (Yu Yu Hakusho)
