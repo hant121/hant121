@@ -1,3 +1,3 @@
-_**This is DUUUMMMBBB!!!!!!**_
+_**Apparently Goku hasn't eaten in 500 years, his body's making up for lost time.**_
 
-Yuusuke Urameshi (Yu Yu Hakusho)
+Genjo Sanzo (Saiyuki)
