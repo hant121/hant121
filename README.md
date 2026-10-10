@@ -1,3 +1,3 @@
-_**Apparently Goku hasn't eaten in 500 years, his body's making up for lost time.**_
+_**Falling is just another way of flying.**_
 
-Genjo Sanzo (Saiyuki)
+Nine (Terror in Resonance)
