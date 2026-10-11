@@ -1,3 +1,3 @@
-_**Falling is just another way of flying.**_
+_**No matter what changes, I'll still be me. And I can be whoever I want to be.**_
 
-Nine (Terror in Resonance)
+Amu Hinamori (Shugo Chara)
