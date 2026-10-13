@@ -1,3 +1,3 @@
-_**Does my complexion look terrible to you? Does my face look pale to you? Do I look weak to you? Does it look like I haven’t got long to live? Does it look like I’m close to death?**_
+_**The most precious thing is different for every human. They resist and kill each other because of their difference. It has nothing to do with the inability to sense the other's most important thing.**_
 
-Muzan Kibutsuji (Demon Slayer: Kimetsu no Yaiba)
+Shijima Kurookano (Nabari no Ou)
