@@ -1,3 +1,3 @@
-_**The most precious thing is different for every human. They resist and kill each other because of their difference. It has nothing to do with the inability to sense the other's most important thing.**_
+_**If you ask this old man anything about it here and now… Then I’ll quit being a pirate! I don’t want to go on a boringadventurelike that!**_
 
-Shijima Kurookano (Nabari no Ou)
+Monkey D. Luffy (One Piece)
