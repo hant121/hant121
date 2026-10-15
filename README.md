@@ -1,3 +1,3 @@
-_**If you ask this old man anything about it here and now… Then I’ll quit being a pirate! I don’t want to go on a boringadventurelike that!**_
+_**When I say it doesn’t hurt me, that means I can bear it.**_
 
-Monkey D. Luffy (One Piece)
+Killua (Hunter x Hunter)
