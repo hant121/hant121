@@ -1,3 +1,3 @@
-_**When I say it doesn’t hurt me, that means I can bear it.**_
+_**It's not difficult to compose poetry. You just have to translate your feelings into meter.**_
 
-Killua (Hunter x Hunter)
+Kanade Ōe (Chihayafuru 2)
