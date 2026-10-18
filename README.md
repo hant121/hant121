@@ -1,3 +1,3 @@
-_**No, but I can learn. I'll bathe in blood. If that's what it takes to protect my friends, I'll take it. All the hatred, the disease. I'll take it as my own and end it.**_
+_**You can go anywhere you want in this world with a single blade. This may be a virtual world, but I feel more alive here than in the real world.**_
 
-Shū Ouma (Guilty Crown)
+Kazuto Kirigaya (Sword Art Online)
