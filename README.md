@@ -1,3 +1,3 @@
-_**You can go anywhere you want in this world with a single blade. This may be a virtual world, but I feel more alive here than in the real world.**_
+_**To be sure, love can kill, but always remember, hate can never save. Never!**_
 
-Kazuto Kirigaya (Sword Art Online)
+Odette Bouquet (Noir)
