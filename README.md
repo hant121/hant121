@@ -1,3 +1,3 @@
-_**To be sure, love can kill, but always remember, hate can never save. Never!**_
+_**The Sun does not ever give, almost all choose to take from it selfishly.**_
 
-Odette Bouquet (Noir)
+Dune (Casshern Sins)
