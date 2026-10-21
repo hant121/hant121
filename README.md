@@ -1,3 +1,3 @@
-_**The Sun does not ever give, almost all choose to take from it selfishly.**_
+_**If you forced someone to do something they didn’t want to do, they’d just end up hating life.**_
 
-Dune (Casshern Sins)
+Chihiro Sengoku (The Pet Girl of Sakurasou)
