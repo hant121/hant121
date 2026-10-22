@@ -1,3 +1,3 @@
-_**If you forced someone to do something they didn’t want to do, they’d just end up hating life.**_
+_**Once you get everything back, you'll be down to having nothing but loads of fun left.**_
 
-Chihiro Sengoku (The Pet Girl of Sakurasou)
+Aoi Toori (Horizon in the Middle of Nowhere)
