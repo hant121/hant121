@@ -1,3 +1,3 @@
-_**Waah, Kyo's picking on me! (Repeated line)**_
+_**If you’re going to become a hero, you don’t have time for such leisurely events.**_
 
-Sohma Momiji (Fruits Basket)
+Shouta Aizawa (My Hero Academia)
