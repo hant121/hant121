@@ -1,3 +1,3 @@
-_**If you’re going to become a hero, you don’t have time for such leisurely events.**_
+_**Hell is in human heart.**_
 
-Shouta Aizawa (My Hero Academia)
+Ai Enma (Hell Girl)
