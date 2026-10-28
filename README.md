@@ -1,3 +1,3 @@
-_**I was wrong, kindness is pointless.**_
+_**You think I'm making demons simply as weapons, but demons are created by the human soul.**_
 
-Shū Ouma (Guilty Crown)
+Millenium Earl (D.Gray-man)
