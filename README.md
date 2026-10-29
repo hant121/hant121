@@ -1,3 +1,3 @@
-_**You think I'm making demons simply as weapons, but demons are created by the human soul.**_
+_**I thought that would be the only way I could become the world's strongest man. But you know... It didn't work. Your heart isn't something you can get rid of. If you're trying to get rid of your heart, your heart is making you do it. You can never abandon everything to get stronger. The one thing you can never stop is falling in love with someone!**_
 
-Millenium Earl (D.Gray-man)
+Adlet Mayer (Rokka: Braves of the Six Flowers)
