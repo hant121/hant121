@@ -1,3 +1,3 @@
-_**Hinata... this is the unalterable difference in strength... the distinction that separates the elite from the failure. This is the unchangeable reality. From the moment you said you wouldn't run, your defeat was inevitable. The only possible outcome was your present despair... Withdraw!**_
+_**In this world, there's no such thing as "failure" in the first place. The one who knows the "ways to win" more than anyone is also the one who's experienced the most "mistakes". In other words... You could say "failure" is equal to "success"... Couldn't you?**_
 
-Neji Hyuuga (Naruto)
+Toriko (Toriko)
