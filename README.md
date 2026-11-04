@@ -1,3 +1,3 @@
-_**I despise you with my last breath. My spirit will not forget that all consuming hatred.  So long that you live, my spirit can not be free. *to Inuyasha***_
+_**I'm pretty confident about my reflexes. And pretty strong too. I'm a guy after all. When the time comes, I can protect you even at the cost of my life.**_
 
-Kikyo (InuYasha)
+Hideki Hinata (Angel Beats!)
