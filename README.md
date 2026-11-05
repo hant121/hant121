@@ -1,3 +1,3 @@
-_**I'm pretty confident about my reflexes. And pretty strong too. I'm a guy after all. When the time comes, I can protect you even at the cost of my life.**_
+_**If you lose something, just build it again. And this time, with a greater care.**_
 
-Hideki Hinata (Angel Beats!)
+Yoshioka Futaba (Blue Spring Ride)
