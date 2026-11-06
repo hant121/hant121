@@ -1,3 +1,3 @@
-_**If you lose something, just build it again. And this time, with a greater care.**_
+_***To Temari* It really doesn't matter to me if I ever become a chūnin or not, but I guess I shouldn't let myself be beaten by a female, so let's do it.**_
 
-Yoshioka Futaba (Blue Spring Ride)
+Nara Shikamaru (Naruto)
