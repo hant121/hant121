@@ -1,3 +1,3 @@
-_**I'm a pirate hunter.**_
+_**Nobody preaching about justice is ever a good guy.**_
 
-Roronoa Zoro (One Piece)
+Beerus (Dragon Ball Z)
