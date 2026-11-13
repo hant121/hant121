@@ -1,3 +1,3 @@
-_**Well excuse me for making you sleep in the wild all the time.**_
+_**If many negative emotions gather, they will end up influencing the entire world. But on the other hand, it is also possible to gather positive emotions and lead the world in that direction.**_
 
-Inuyasha (InuYasha)
+Scar's Brother (Fullmetal Alchemist: Brotherhood)
