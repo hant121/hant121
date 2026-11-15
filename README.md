@@ -1,3 +1,3 @@
-_**Unless someone makes the first move, nothing will happen.**_
+_**It can't be helped, if there's nothing you can do, then there's nothing else you can do.**_
 
-Misa Amane (Death Note)
+Tsugumi Seishirou (Nisekoi: False Love)
