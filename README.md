@@ -1,3 +1,3 @@
-_**It can't be helped, if there's nothing you can do, then there's nothing else you can do.**_
+_**And it seems you've acquired a new power. However, is that all you are capable of achieving with it? This is the end. You will no longer interfere. The sun has already set in our hands.**_
 
-Tsugumi Seishirou (Nisekoi: False Love)
+Ulquiorra Schiffer (Bleach)
