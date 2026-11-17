@@ -1,3 +1,3 @@
-_**And it seems you've acquired a new power. However, is that all you are capable of achieving with it? This is the end. You will no longer interfere. The sun has already set in our hands.**_
+_**I've been trying so hard... Even though you rejected me, I've been trying my best. But if I go on liking you like this then nothing will change.**_
 
-Ulquiorra Schiffer (Bleach)
+Risa Koizumi (Lovely Complex)
