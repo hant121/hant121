@@ -1,3 +1,3 @@
-_**If you run into a wall and pretend it doesn't exist, you'll never make progress. The wall will never change, so you're the one who has to change.**_
+_**"Every experience is a tool to clear your path." It was none other than those students who taught me that.**_
 
-Hijikata Toushirou (Gintama)
+Karasuma Tadaomi (Assassination Classroom 2nd Season)
