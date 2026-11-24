@@ -1,3 +1,3 @@
-_**I came to believe that a world where people can understand each other isn't impossible. That's why even if the world rejects me... even if the world blames me... I'll keep on fighting.**_
+_**When I'm away from you, even though I can't be around crowds, I want to go see you.**_
 
-Lockon Stratos (Mobile Suit Gundam 00)
+Gin (Into the Forest of Fireflies' Light)
