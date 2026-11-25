@@ -1,3 +1,3 @@
-_**When I'm away from you, even though I can't be around crowds, I want to go see you.**_
+_**It doesn't matter where I look, it's always idiots as far as the eye can see.**_
 
-Gin (Into the Forest of Fireflies' Light)
+Genjo Sanzo (Saiyuki)
