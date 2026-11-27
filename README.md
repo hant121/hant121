@@ -1,3 +1,3 @@
-_**Love. I myself have never loved another person.  Most likely, I don't even love myself.  I do have knowledge of it.  But I am incapable of determining whether or not it is vital in my life.**_
+_**While it may be that ignorance is a sin, it's impossible to know everything.**_
 
-Vorona (Durarara!!)
+Kraft Lawrence (Spice and Wolf)
