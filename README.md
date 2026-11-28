@@ -1,3 +1,3 @@
-_**While it may be that ignorance is a sin, it's impossible to know everything.**_
+_**You make me sick, you and your pathetic girly whining... You're not a MAN! You're just a little kitty-cat who's afraid to fight! Know what?! YOU CAN GO TO HELL! HAHAHAHAHA! UGH! (gets kicked by Kyo in the face)**_
 
-Kraft Lawrence (Spice and Wolf)
+Sohma Hatsuharu (Fruits Basket)
